@@ -1,1 +1,1 @@
-I'm a Director at Tyne, a gamer and tech enthusiast. I'm on github to witness the immense talent of people building the future and to find some incredible open source technology. Tyne invests in young tech companies and builds their team. Feel free to reach out for any reasons at all man
+I'm a Director at Tyne, a gamer and tech enthusiast. I'm on github to witness the immense talent of people building the future and to find some incredible open source technology. Tyne invests in young tech companies and builds their team. Feel free to reach out for any reasons at all 
